@@ -1,6 +1,6 @@
 # 雷霆机场官网地址
 
-最新地址：[leiting.lol](https://leiting.uniss.me/invite/uD02bTPS)
+最新地址：[leiting.lol](https://lt.uniss.me/invite/uD02bTPS)
 
 ## 雷霆机场介绍
 
